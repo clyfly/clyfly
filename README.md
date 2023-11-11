@@ -1,8 +1,4 @@
-- 👋 Hi, I’m @clyfly
-- 👀 I’m interested in bokep
-- 🌱 I’m currently learning bokep
-- 💞️ I’m looking to collaborate on bokep
-- 📫 How to reach me pornhub.com
+Hellow My Name is Radinka, im from Indonesian, curently i just study on University Islam Tribakti Lirboyo Kediri
 
 <!---
 clyfly/clyfly is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
